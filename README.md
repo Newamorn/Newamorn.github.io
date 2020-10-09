@@ -1,1 +1,2 @@
 # Newamorn.github.io
+สวัสดีคะ
